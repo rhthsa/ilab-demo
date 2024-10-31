@@ -10,6 +10,8 @@ From Zero is the upcoming eighth studio album by American rock band Linkin Park,
 
 The album's title has a double meaning; it is a reference to both the band's original name, Xero, and the band's new chapter with Armstrong and Brittain
 
+On September 5, 2024.  Linkin Park announced From Zero after a livestreamed performance of several songs including the album's lead single, "The Emptiness Machine". Simultaneously, the band confirmed Emily Armstrong of Dead Sara as the band's new co-lead singer, with Colin Brittain taking over drums in light of Rob Bourdon's departure.
+
 The ensemble is touring in the United States, Germany, the United Kingdom, France, South Korea, Colombia and Brazil. The From Zero World Tour began on September 11, 2024, six days after the live show at the Kia Forum in Inglewood, California, and is scheduled to conclude at the Allianz Parque in São Paulo, Brazil, on November 16, 2024.
 
 On September 7, 2024, lead guitarist Brad Delson announced that he would no longer tour with the band, with Alex Feder assuming the role as Linkin Park's touring guitarist. Delson confirmed that he would continue to work with the band creatively, preferring behind-the-scenes work
